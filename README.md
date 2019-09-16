@@ -1,1 +1,1 @@
-#@!https://www.yunvxinjin.com#@!
+https://www.yunvxinjin.com
